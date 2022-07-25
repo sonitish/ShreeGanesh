@@ -1,2 +1,2 @@
 # ShreeGanesh
-Lord
+Lord or God
